@@ -4,5 +4,5 @@
 
 ###Mariana Barcenna
 ###Diego Ocampo
-###Nicolas Ofrlaerti
+###Nicolas Oflaerti 35 años, San Miguel.
 ###Alejandro Elias
