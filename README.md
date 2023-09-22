@@ -2,7 +2,7 @@
 
 ##Lista de integrantes
 
-###Mariana Barcena 
+###Mariana Barcena 25 años , Lanus Oeste.
 ###Diego Ocampo
 ###Nicolas Oflaerti 35 años, San Miguel.
 ###Alejandro Elias
